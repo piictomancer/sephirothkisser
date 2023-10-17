@@ -1,4 +1,4 @@
-![README](https://github.com/sephirothkisser/sephirothkisser/assets/148183080/b97d967f-bc8d-43cb-ae30-d2d4d35c80be)
+![README](https://github.com/sephirothkisser/sephirothkisser/assets/148183080/fcad81a6-3e97-41c1-984a-235fb7d50df4)
 
 ๋࣭ ⭑ PONY TOWN INFO ⊹ ࣪ ˖
 
