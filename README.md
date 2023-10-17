@@ -9,3 +9,21 @@ dont copy but feel free to take inspo from my skins! i learnt from taking inspo 
 im usually on another tab if im not responding, so whisper if you want me to see anything !!
 
 thats basically it
+
+
+๋࣭ ⭑ INTERESTS ⊹ ࣪ ˖
+Final Fantasy (specifically vii, xiv, xv)
+Twisted Wonderland
+Persona 5 (and 4,, sort of,, i havent finished it yet)
+Soul Eater 
+Black Butler
+Castlevania (specically the shows, havent gotten around to playing the games yet)
+Splatoon
+Pokemon (Sun+Moon are my favs)
+Sk8
+Bloomic (is this fandom even alive??)
+JoJo's Bizarre Adventure
+Fire Emblem Awakening (someone by me fe3h pls ill give you a big fat platonic smooch)
+Vocaloid
+Im kindof into enstars,, mostly the gameplay but ohwell
+thats all im putting because this will turn into a whole essay
