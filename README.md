@@ -2,7 +2,7 @@
 
 ๋࣭ ⭑ PONY TOWN INFO ⊹ ࣪ ˖
 
-basic DNI criteria, im also anti comship and proship
+DNI: basic DNI criteria, im also anti comship and proship
 
 dont copy but feel free to take inspo from my skins! i learnt from taking inspo so go ahead. (if you take inspo leave a photo on my guestbook, id love to see it!)
 
@@ -13,6 +13,6 @@ thats basically it
 
 ๋࣭ ⭑ INTERESTS ⊹ ࣪ ˖
 
-Final Fantasy (specifically vii, xiv, xv), Twisted Wonderland, Persona 5 (and 4,, sort of,, i havent finished it yet), Soul Eater, Black Butler, Castlevania (specifically the shows, havent gotten around to playing the games yet), Splatoon, Pokemon (Sun+Moon are my favs), Sk8, Bloomic (is this fandom even alive??), JoJo's Bizarre Adventure, Fire Emblem Awakening (someone by me fe3h pls ill give you a big fat platonic smooch), Vocaloid, Im also kindof into enstars,, mostly the gameplay but ohwell
+Final Fantasy (specifically vii and xiv), Twisted Wonderland, Persona 5 (and 4,, sort of,, i havent finished it yet), Soul Eater, Black Butler, Castlevania (specifically the shows, havent gotten around to playing the games yet), Splatoon, Pokemon (Sun+Moon are my favs), Sk8, Bloomic (is this fandom even alive??), JoJo's Bizarre Adventure, Fire Emblem Awakening (someone by me fe3h pls ill give you a big fat platonic smooch), Vocaloid, Im also kindof into enstars,, mostly the gameplay but ohwell
 
 thats all im putting because this will turn into a whole essay if i dont stop
